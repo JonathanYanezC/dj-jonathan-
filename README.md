@@ -1,2 +1,2 @@
 # dj-jonathan-
-Official website of DJ Jonathan dash Music, Events, and Entertainment
+Official website of DJ Jonathan - Music, Events, and Entertainment
